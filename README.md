@@ -41,3 +41,4 @@ A job as a legal researcher, which involves researching legal issues and assisti
 A career as a legal writer, creating legal articles, briefs, and other written materials for clients or publishing in legal journals, may also be an option for B.A. L.L.B. graduates. Producing a variety of written documents for clients or for publication in legal journals and other venues is the responsibility of legal writers. 
 
 Overall, a variety of job choices in both the public and commercial sectors are made possible by the combination of business and legal expertise that B.A. L.L.B. graduates possess. B.A. L.L.B. graduates have a wide range of employment options, such as practicing law, consulting, corporate law, and more. If you're interested in these roles, you might want to apply to SLS Pune. And the same course BA LLB is available to boost your career further and furnish with what you dream and wish for in INDORE MANAGEMENT INSTITUTE 
+https://www.imi.ac.in/
